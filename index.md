@@ -1,3 +1,6 @@
-# Welcome to my blog
+# Best page in the world is here
 
-I'm glad you are here. I plan to talk about ...
+Meowistan is best Meowtopia
+
+###### messing around 
+### with coding n stuff
